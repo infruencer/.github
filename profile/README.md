@@ -1,1 +1,1 @@
-## Hi there 👋
+INFP + (INFJ * 2) === PERPECT !
